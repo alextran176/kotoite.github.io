@@ -1,0 +1,2 @@
+# kotoite.github.io
+Pages
